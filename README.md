@@ -1,2 +1,4 @@
 # panama
-Calandra's 28th Birthday Trip (Idea)
+Panama Trip Hosted By Calandra
+Potential Trip Idea
+Hopefully everyone can join in on this trip! This is an advance notice!
